@@ -1,1 +1,1 @@
-https://www.linkedin.com/in/jiyeon-park-jyp/
+[text](https://www.linkedin.com/in/jiyeon-park-jyp/)
